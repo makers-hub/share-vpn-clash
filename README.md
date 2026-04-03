@@ -7,9 +7,6 @@
 ## 🔗 访问地址
 
 * 🌐 官网地址：
-  👉 https://landouyun.cloud
-
-* 🌐 备用地址：
   👉 https://greentrees.cc
 
 ---
