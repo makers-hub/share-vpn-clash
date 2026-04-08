@@ -1,4 +1,4 @@
-# 🚀 蓝豆云-长期、稳定的机场VPN平台、Clash订阅平台
+# 🚀 长期、稳定的机场VPN平台、Clash订阅平台
 
 ![按Ctrl + D收藏该地址，不迷路](https://github.com/user-attachments/assets/1ed7d056-dd77-4d15-b0db-12ec8c62ce28)
 
