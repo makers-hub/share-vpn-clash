@@ -7,7 +7,7 @@
 ## 🔗 访问地址
 
 * 🌐 官网地址：
-  👉 [https://greentrees.cc](https://www.xn--8qv123c.co/auth/register?code=9tzZolMV)
+  👉 [点击跳转](https://www.xn--8qv123c.co/auth/register?code=9tzZolMV)
 
 ---
 
