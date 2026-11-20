@@ -8,6 +8,7 @@
 
 * 🌐 官网地址：
   👉 [点击跳转](https://hxlove25s.cc/web/#/login?code=CgXVBBE5)
+* 优惠码：Makers（下单页面填写优惠码可享8折优惠）
 
 ---
 
