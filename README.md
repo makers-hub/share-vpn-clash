@@ -7,7 +7,7 @@
 ## 🔗 访问地址
 
 * 🌐 官网地址：
-  👉 [点击跳转](https://www.xn--8qv123c.co/auth/register?code=9tzZolMV)
+  👉 [点击跳转](https://hxlove25s.cc/web/#/login?code=CgXVBBE5)
 
 ---
 
